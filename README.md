@@ -1,0 +1,1 @@
+# pelada-stats-privacy
